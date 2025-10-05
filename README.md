@@ -12,15 +12,21 @@ https://youtu.be/THCLr9jhX98
 
 ### Other Assembly Hardware
 Aluminum Extrusion
+
 Steel Mounting Brackets
 Pulley Bearings
+
 Aluminum Extrusion Sliders
+
 Steel Cable kit
+
 Casters
 
 ### Camera Hardware
 Mini Tripod
+
 Additional camera mounting head
+
 Light
 
 
